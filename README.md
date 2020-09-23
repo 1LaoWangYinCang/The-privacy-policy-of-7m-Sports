@@ -45,6 +45,6 @@ Account information -- If you want to access or edit your account's personal inf
 V. How to update this Privacy Policy
 We may adjust or change this Privacy Policy in due course, and any update of this Privacy Policy will be posted on our website at the time of the update. Unless otherwise mandatory by laws, regulations or regulations, the content adjusted or changed will take effect 7 days after notice or publication. If you continue to use any of our services or visit our website after the policy has been adjusted or changed, we believe that you have fully read, understood and accepted the revised Privacy Policy and are bound by it.
 How to contact us
-If you have any questions, comments or Suggestions regarding this Privacy Policy, please contact us at cdwmxqobm@sina.com
+If you have any questions, comments or Suggestions regarding this Privacy Policy, please contact us at qingdaokaifazhe@163.com 
 
 As a rule, we will reply you within 30 days.
